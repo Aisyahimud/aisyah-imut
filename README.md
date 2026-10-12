@@ -1,2 +1,0 @@
-# aisyah-imut
-Web bucin
